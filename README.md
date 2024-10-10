@@ -1,0 +1,1 @@
+# JIHANE-static
